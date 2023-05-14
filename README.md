@@ -1,1 +1,1 @@
-# Autoforward.github.io
+# join.annihilatorrrr.club
